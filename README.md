@@ -8,6 +8,6 @@ Atuei em todas as fases do ciclo de vida de produtos digitais — da ideação d
 
 ### 🚀 Vamos nos conectar?
 
-- [LinkedIn](https://www.linkedin.com/in/lucas-assis-81646a58/)
+- 📱 [LinkedIn](https://www.linkedin.com/in/lucas-assis-81646a58/)
 - 📬 lukas.ecomp@gmail.com  
 - 🌐 [GitHub](https://github.com/eng-assys)
